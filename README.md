@@ -4,4 +4,4 @@ wifi password bruteforce tool 2k24 🤠
 ![Alt text for screenshot](images/screenshot.png)
 
 any doubts?
-contact me telegram: https://t.me/carlosofc01
+contact me telegram: https://t.me/fuckwifi_org
